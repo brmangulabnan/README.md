@@ -1,7 +1,5 @@
 ## Hello, I'm Brylle.
 
----
-
 ### Career Information
 
 * 🏫 I'm currently in my Junior year, taking  BS Information Technology.
